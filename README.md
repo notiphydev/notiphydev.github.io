@@ -1,2 +1,0 @@
-# notiphydev.github.io
-ADs
